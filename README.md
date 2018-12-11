@@ -1,1 +1,0 @@
-# radicul.github.io
